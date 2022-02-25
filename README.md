@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @basedDusked
-- 👀 I’m interested in racism
-- 🌱 I’m currently learning racism
-- 💞️ I’m looking to collaborate on racism
-- 📫 How to reach me: say something that i agree with (racism)
+- 👀 I’m interested in see plus plus
+- 🌱 I’m currently learning see plus plsu
+- 💞️ I’m looking to collaborate on nothing fuck off
+- 📫 How to reach me: Dusked#9038
 
 <!---
 basedDusked/basedDusked is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
